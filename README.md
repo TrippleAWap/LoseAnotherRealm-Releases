@@ -12,9 +12,6 @@
 New version will be released soon! 🥳🥳🎉🎉
 
 ------------------
+# NOW PAID 🤑🤑🤑🤑🤑🤑🤑🤑🤑
 
-```diff
-+ Updates coming soon
-
-- NOTHING WE UP!!!!
-```
+## $10 for full access, `trippleawap` on discord.
