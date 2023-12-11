@@ -11,4 +11,4 @@
 ------------------
 # NOW PAID 🤑🤑🤑🤑🤑🤑🤑🤑🤑
 
-## $10 for full source, `trippleawap` on discord.
+## $10 for full access, `trippleawap` on discord.
